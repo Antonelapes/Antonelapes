@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Antonela Pessola
-- 🔭 My personal page and portfolio https://www.behance.net/antopessola.
+- 🔭 My personal page and portfolio https://www.behance.net/antopessola
 - 📫 How to reach me Antonelapessola93@gmail.com
 
 <!---
